@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rutendohumanikwa0@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **I think I love coding**
 
 <h3 align="left">Connect with me: 0773 104 908</h3>
 <p align="left">
